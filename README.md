@@ -1,3 +1,3 @@
-# qr.onface.live
+# q.nimo.fun
 
-[https://qr.onface.live](https://qr.onface.live)
+[https://q.nimo.fun](https://q.nimo.fun)
